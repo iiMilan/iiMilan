@@ -1,0 +1,1 @@
+- I'm an admin on a server called MineZone. Where I develop some servers and maintain them. discord.minezone.gg
