@@ -1,1 +1,3 @@
 - I'm an admin on a server called MineZone. Where I develop some servers and maintain them. discord.minezone.gg
+- I'm a support member for BetterRTP
+- I'm a helper on KitPvP
